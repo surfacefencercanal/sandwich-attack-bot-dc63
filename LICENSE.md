@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with MEV-optimized sandwich attack bot | take-profit + auto-sell, the #1 sandwich attack bot. Includes take-profit and auto-sell for a faster and more
 
 
 
